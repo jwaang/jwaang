@@ -2,7 +2,7 @@
 
 - ⚒ Software Engineer @ SchooLinks
 
-- 📍 Based in Dallas, TX
+- 📍 Based in Austin, TX
 
 - 🏫 Texas A&M University alumnus
 
